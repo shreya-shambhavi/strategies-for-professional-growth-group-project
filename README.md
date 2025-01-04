@@ -1,1 +1,3 @@
-# strategies-for-professional-growth-group-project
+# Strategies For Professional Growth - Group Project
+
+To be updated.
